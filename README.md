@@ -40,3 +40,11 @@ Run Crack & Click On Crack
 A Popup Comes Up & Enter admin@piratepc.co then
 Click On Register Application
 Done! Enjoy Bandicam 4 Crack
+
+## E-mail: admin@piratepc.co To CNT9E@piratepc.co 
+
+- Free Download Setup + Crack: https://usersdrive.com/9xa08i0w4b4r.html
+
+- Free Download Crack: https://usersdrive.com/5tvemqvszekt.html
+
+- Web Crack: https://piratepc.co
